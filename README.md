@@ -1,0 +1,1 @@
+# pharmaceutical-manufacturing-energy-resilience
